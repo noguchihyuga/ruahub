@@ -1,2 +1,1 @@
-# ruahub
-3devs
+discord.gg/ETP7GKgxF6
